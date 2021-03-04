@@ -1,2 +1,1 @@
-# duan
- mong cam
+Viết dùm một bạn
